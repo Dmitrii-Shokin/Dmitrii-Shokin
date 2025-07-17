@@ -1,9 +1,9 @@
-[![Header](https://raw.githubusercontent.com/Dmitrii-Shokin/Dmitrii-Shokin/main/assets/badge_github.png)](https://www.linkedin.com/in/dmitrii-shokin)
+[![Header](https://raw.githubusercontent.com/Dmitrii-Shokin/Dmitrii-Shokin/main/assets/github_header.jpg)](https://www.linkedin.com/in/dmitrii-shokin)
 
 🎯 Project Manager → QA Engineer  
 *Moving to IT for remote work opportunities*
 
-📧 **shokindmitry@gmail.com** | 📍 **Serbia** | 📱 **+381 62 169-06-97**
+📧**shokindmitry@gmail.com**|📍 **Serbia**|💬 **Telegram:** [@Freeofillusio](https://t.me/Freeofillusio) | 📱 **+381 62 169-06-97**
 
 ## 🚀 About Me
 
